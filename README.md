@@ -1,7 +1,7 @@
 I'm Thembinkosi Emmanuel Manikela
 I'm interested in Physics 
 I'm currently learning at University of Eswatini 
-- I'm looking to collaborate on physics 
+- I'm looking to collaborate on great and inspiring Physicist worldwide.
 - My email address is thembinkosimanikela34@gmail.com
 
 
